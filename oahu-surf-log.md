@@ -26,3 +26,12 @@ Really bad chafing from the wax and rash guard
 
 Location: Diamond head / waikiki
 Coditions: Small but fun. 2-3 ft
+
+## 19-2-2021
+
+![IMG_1486](https://user-images.githubusercontent.com/1289052/109859119-7a1de580-7c11-11eb-9be1-01bd34dffa68.jpg)
+
+Location: Diamond head / waikiki
+Conditions: 2-3 feet. 
+
+First day out surfing with Bryce! 30 minute walk each way.
