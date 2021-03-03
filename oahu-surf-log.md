@@ -2,6 +2,8 @@
 
 ## 02-3-2021
 
+![image](https://user-images.githubusercontent.com/1289052/109858698-febc3400-7c10-11eb-8921-93e28c7814e1.png)
+
 Location: Diamond head cliff beach
 Conditions: bad. Windy, onshore winds. Choppy 3-4 ft
 
@@ -12,8 +14,13 @@ Conditions:  bad. Windy, onshore winds. Choppy 4 ft
 
 ## 27-2-2021
 
+![image](https://user-images.githubusercontent.com/1289052/109858800-1f848980-7c11-11eb-8bb7-10dbf6beafd1.png)
+
+
 Location: North shore
 Coditions: Great 5-6 ft
+
+Really bad chafing from the wax and rash guard
 
 ## 26-2-2021
 
